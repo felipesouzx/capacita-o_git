@@ -1,3 +1,0 @@
-# desenvolvimento
-Um certo dia, enquanto treinava sua pontaria com latas empilhadas atrás do celeiro, Sally avistou uma nuvem de poeira no horizonte, sinal de que alguém se aproximava. Era um forasteiro misterioso montado em um cavalo-emu, com um olhar sério e um cartaz de procurado nas mãos. Ao entregar o papel, Sally arregalou os olhos: o rosto que estampava a recompensa era o de Mack, um antigo amigo que havia deixado Radiator Springs anos atrás em busca de aventura. Movida por um misto de curiosidade e lealdade, Sally decide embarcar em sua primeira grande jornada fora da cidade para descobrir a verdade sobre o velho amigo, e, quem sabe, sobre si mesma também..
-
